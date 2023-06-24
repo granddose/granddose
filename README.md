@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @granddose
-- 👀 I’m interested in video production
+- 👀 I’m a cinematographer and video editor
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on automated systems for marketing and promotions
 - 📫 You can reach me at create@granddose.com
